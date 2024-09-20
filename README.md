@@ -1,5 +1,5 @@
 # 💫 About Me:
-Men Nosirov Iskandarbek Android dasturchiman<br>2006-yil 2-sentabrda O'zbekiston Respublikasi , Farg'ona viloyati, <br>Farg'ona tumanida tug'ilganman.<br>Qiziqishlarim : dasturlash , kiberxavfsizlik.<br>Dasturlashni Codial IT Akademiyasida o'rganganaman.<br>
+Men Nosirov Iskandarbek Android dasturchiman<br>2006-yil 2-sentabrda O'zbekiston Respublikasi , Farg'ona viloyati, <br>Farg'ona tumanida tug'ilganman.<br>Qiziqishlarim : dasturlash , kiberxavfsizlik.<br>Dasturlashni Codial IT Akademiyasida o'rganganman.<br>
 
 
 ## 🌐 Socials:
